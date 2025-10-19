@@ -1,1 +1,1 @@
-<img width="1920" height="1080" alt="kami mac wp (1)" src="https://github.com/user-attachments/assets/7dd0feeb-82a3-44cf-b8ec-3eeb0300af57" />
+<img width="3056" height="1515" alt="kami github" src="https://github.com/user-attachments/assets/594d0626-535a-445d-b25f-844c1aec33a5" />
